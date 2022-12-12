@@ -1,3 +1,5 @@
+# Net Take Aways
+
 New online language learning platforms are experiencing better growth rates than legacy platforms, and Preply is already a leader among the emerging platforms. 
 
 The current competitive landscape puts market cap somewhere around $8B for online language learning platforms, with a forecasted cap of $23B by 2030, resulting in a CAGR of 12% between 2021-2030. These are all above average benchmarks that point to significant growth opportunity in Preply’s sector. 
